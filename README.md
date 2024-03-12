@@ -1,6 +1,6 @@
 # XMRth机场官网地址
 
-最新地址：[xmrth.fun](http://xmrth.fun/)
+最新地址：[xmrth.fun](https://www.xmrth.cloud/)
 
 ## XMRth机场介绍
 
